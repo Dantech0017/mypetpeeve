@@ -1,6 +1,6 @@
 ## Dante's Pet Peeve
 
- **_My Biggest Pet Peeve: People who eat food off your plate without asking first__**
+**My Biggest Pet Peeve: People who eat food off your plate without asking first**
  
 ![Image](pet-peeves.png)
 
@@ -33,7 +33,7 @@ Please don’t grab other people’s food without asking. It is rude. Vey rude. 
 
 [link to food thieves moochers](https://www.al.com/business/2014/02/food_thieves_moochers_and_the.html)
 
-[summer break gif](https://giphy.com/gifs/summerbreak-summer-break-xT0GqfFgIkZfLimRGM
+[summer break gif](https://giphy.com/gifs/summerbreak-summer-break-xT0GqfFgIkZfLimRGM)
 
 ![Image](i-take-your-foods.png)
 
