@@ -13,11 +13,15 @@ This is wrong because it is disrespectful to get people’s stuff without asking
   
 **Next time you see someone eating people’s food without asking you can do the following:** 
 
-Say, “Excuse me, could you please explain what you are doing?”
-Yell “Stop, stop, stop!” at the top of your lungs.
-Grab their fork and throw it as far aasa you can. 
-Have a brief conversation and ask them to tell you what they were about to do - I call this the “honesty test”.
-Grab your plate and sit at another table. 
+1. Say, “Excuse me, could you please explain what you are doing?”
+
+2. Yell “Stop, stop, stop!” at the top of your lungs.
+
+3. Grab their fork and throw it as far aasa you can. 
+
+4. Have a brief conversation and ask them to tell you what they were about to do - I call this the “honesty test”.
+
+5. Grab your plate and sit at another table. 
 
 If you think it is acceptable or insignifcant to eat other people’s food from their plate and not ask, please note that this website is intended to help you understand **why that is not okay.** 
 
