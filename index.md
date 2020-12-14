@@ -6,8 +6,8 @@
 
 
 **Who can relate?**
+![Image](memelol.png)
 
-[I can relate - click here]()
 
 This is wrong because it is disrespectful to get people’s stuff without asking. Imagine if you are drinking milk and I grab my warm, chocolate chip cookie and dip it in your milk cup without asking you first, how would you feel? Mad, angry, confused, all of the above? Yep, I feel you.
   
@@ -27,7 +27,9 @@ Please don’t grab other people’s food without asking. It is rude. Vey rude. 
 
 Related to the food thief, this person is always asking to have or share something – like snacks. But the Moocher freeloads more than food. This person asks to borrow supplies, money for lunch or other favors with no intentions of returning anything. She used to join you and a few of your cohorts for lunch, but now you find yourself sneaking out of the office to avoid the tagalong who will no doubt come up short at the table. The best way to deal with the moocher is to call attention to the offense in a private conversation. Be as diplomatic as possible but state that you can no longer provide favors (give examples) and express how it is a strain on the relationship. Now you have a duty to demonstrate to your teammate that you can remain professional and continue to work with her.
 
-https://www.al.com/business/2014/02/food_thieves_moochers_and_the.html
+[link to food thieves moochers](https://www.al.com/business/2014/02/food_thieves_moochers_and_the.html)
 
-https://giphy.com/gifs/summerbreak-summer-break-xT0GqfFgIkZfLimRGM
+[summer break gif](https://giphy.com/gifs/summerbreak-summer-break-xT0GqfFgIkZfLimRGM
+
+![Image](i-take-your-foods.png)
 
